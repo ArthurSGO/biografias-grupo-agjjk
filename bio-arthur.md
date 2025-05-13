@@ -1,0 +1,1 @@
+Eu me chamo Arthur Soares Gardim, tenho 21 anos, não gosto de estudar e meu hobbie é jogar video game.
